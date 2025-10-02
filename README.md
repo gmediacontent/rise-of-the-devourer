@@ -1,1 +1,2 @@
-# rise-of-the-devourer
+# Rise of the Devourer
+Noah Brown a un don pour le combat. Malheureusement, les coups de poing ne lui permettent pas de payer ses factures. Du moins, c'était le cas jusqu'à ce qu'il meure et qu'un dieu Eldritch trouve son âme. Cette étrange rencontre l'amène dans un nouveau monde, convoqué par des cultistes sanguinaires. Il n'a rien d'autre que la chemise qu'il porte sur le dos et un objet étrange au pouvoir inconnu dont il ne sait pas encore comment se servir. S'il veut survivre, voire prospérer, il est peut-être temps qu'il utilise enfin son don à bon escient. Dessin de Kisai Entertainment.
